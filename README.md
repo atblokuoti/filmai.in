@@ -12,3 +12,4 @@ Filmai.in prisijungimai:
 6. https://82.202.162.23/ (filmai.in)
 7. https://filmai10.in/
 8. https://filmaix.com/
+9. https://filmaiz.in/
